@@ -1,2 +1,2 @@
 
-### <i>Hi there 👋 Welcome to my GitHub! I'm Lx</i>
+### <i>Hi there 👋 I'm Lx</i>, Welcome to my GitHub profile!
